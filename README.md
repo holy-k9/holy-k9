@@ -1,2 +1,3 @@
-<img width="1197" height="379" alt="413671fd2d86dc20e90dd3e60e48d3fc" src="https://github.com/user-attachments/assets/97613cfc-0ec1-4682-a0a8-262af4b3b2b8" />
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤмσяє ѕιтєѕ ¢σмιηg ѕσση,.. ㅤhttps://juno-harvey.atabook.org/ ִֶָ. ..𓂃 ࣪ ִֶָ🦇་༘࿐ѕιgη αтα ρℓѕ
+<img width="1000" height="470" alt="5f8c572dce60916fd668567738a5c3f2" src="https://github.com/user-attachments/assets/6ac3b3ff-1113-47ac-9db6-44f8a29e17ed" />
+
+ㅤㅤㅤ мσяє ѕιтєѕ ¢σмιηg ѕσση,.. https://junokylezz.straw.page/ ::ㅤhttps://juno-harvey.atabook.org/ ִֶָ. ..𓂃 ࣪ ִֶָ🦇་༘࿐ѕιgη αтα ρℓѕ
